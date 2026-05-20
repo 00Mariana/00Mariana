@@ -1,5 +1,5 @@
 
-Hi I'm ⋆. 𐙚˚࿔ Mariana 𝜗𝜚˚⋆
+Hi I'm ╰┈➤ Mariana
 
 Software Engineer
 -----------------
